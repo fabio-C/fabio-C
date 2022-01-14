@@ -5,3 +5,9 @@
 🌍 Remote work advocate and frustrated digital nomad who loves road and adventure trips
 
 📜 Check my [Linkedin page](https://www.linkedin.com/in/fabio-c-61a490190/)
+
+🔥 Proud of
+• founder: [catcodeapp.com](www.catcodeapp.com)
+• founder: [papertag.app](www.papertag.app)
+• creator: [comefarelimoncello.it](www.comefarelimoncello.it)
+• creative coding: [Neural Evolution](https://vimeo.com/176736676)
