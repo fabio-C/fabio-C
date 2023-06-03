@@ -7,10 +7,8 @@
 📜 Check my [Linkedin page](https://www.linkedin.com/in/fabio-c-61a490190/)
 
 🔥 Proud of
-• founder: [catcodeapp.com](https://www.catcodeapp.com)
+• founder: [illustroke.com](https://www.illustroke.com)
 
 • founder: [papertag.app](https://www.papertag.app)
-
-• creator: [comefarelimoncello.it](https://www.comefarelimoncello.it)
 
 • creative coding: [Neural Evolution](https://vimeo.com/176736676)
