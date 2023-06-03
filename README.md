@@ -7,6 +7,7 @@
 📜 Check my [Linkedin page](https://www.linkedin.com/in/fabio-c-61a490190/)
 
 🔥 Proud of
+
 • founder: [illustroke.com](https://www.illustroke.com)
 
 • founder: [papertag.app](https://www.papertag.app)
